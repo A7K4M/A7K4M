@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @A7K4M
+- 👀 I’m interested in coding, language learning.
+- 🌱 I’m currently learning python
+- 💞️ I’m looking to collaborate on telegram bots
+- 📫 How to reach me × Just Collab Me ×
+- ⚡ Fun fact: There Is Nothing
